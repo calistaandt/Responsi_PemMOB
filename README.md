@@ -1,0 +1,1 @@
+![Halaman Registrasi](tambah2.jpeg)
